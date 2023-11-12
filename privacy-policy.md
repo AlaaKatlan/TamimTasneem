@@ -37,4 +37,4 @@ I reserve the right to update or change our Privacy Policy at any time and you s
 
 ## Contact Information
 
-For any questions or concerns regarding the privacy policy, please send me an email to info@dar-alzaibak.com.
+For any questions or concerns regarding the privacy policy, please send me an email to Katlandev0@gmail.com.
